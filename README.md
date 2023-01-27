@@ -3,7 +3,7 @@ Hello dear teacher I didnt have so much time for this assignment, I talked to ky
 "Hi @Mozhdeh Khorashahi
  thanks for reaching out. I am okay with giving you an extension and submitting Module 4 by Sunday. Please message me once submitted."
  
-I m going to submit it here tonight since i don't know if I should submit it now and then work on it more and resubmit it on sunday or extension means that I dont need any submission for now. 
+I m going to submit it here tonight since I don't know if I should submit it now and then work on it more and resubmit it on sunday or extension means that I dont need any submission for now. 
 
 I am going to let her tomorrow, but I wanted to mention to you here that I am probably do this assignment again since I need to review some parts write a better code.
 
