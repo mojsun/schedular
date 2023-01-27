@@ -1,5 +1,11 @@
-Hello dear teacher I didnt have so much time for this assignment, I talked to kyla to give me more time. she said when I submitted the assignment I should let her know and I have time to resubmit it untill sunday night I guess.
-I am going to let her tomorrow, but I wanted to mention to you here that I am probably do this assignment again since I need to review some parts.
+Hello dear teacher I didnt have so much time for this assignment, I talked to kyla to give me more time. this is what she said:
+
+"Hi @Mozhdeh Khorashahi
+ thanks for reaching out. I am okay with giving you an extension and submitting Module 4 by Sunday. Please message me once submitted."
+ 
+I m going to submit it here tonight since i don't know if i should submit it now and then work on it more and resubmit it on sunday or extension means that I dont need any submission for now. 
+
+I am going to let her tomorrow, but I wanted to mention to you here that I am probably do this assignment again since I need to review some parts write a better code.
 
 # 05 Third-Party APIs: Work Day Scheduler
 
