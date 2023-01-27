@@ -1,3 +1,7 @@
+Hello dear teacher i didnt have so much time for this assignment, I talked to kyla to ive me more time. she said when i submitted the assignment i should let her know and i have time to resubmit it untill sunday night i guess.
+I am going to let her tomorrow, but i wanted to mention to you here that i am probably do this assignment again since i need to review some parts like get item set item etc.
+thank you for your understanding.
+
 # 05 Third-Party APIs: Work Day Scheduler
 
 ## Task
