@@ -1,4 +1,4 @@
-Hello dear teacher i didnt have so much time for this assignment, I talked to kyla to ive me more time. she said when i submitted the assignment i should let her know and i have time to resubmit it untill sunday night i guess.
+Hello dear teacher I didnt have so much time for this assignment, I talked to kyla to give me more time. she said when I submitted the assignment I should let her know and I have time to resubmit it untill sunday night I guess.
 I am going to let her tomorrow, but I wanted to mention to you here that I am probably do this assignment again since I need to review some parts.
 
 # 05 Third-Party APIs: Work Day Scheduler
